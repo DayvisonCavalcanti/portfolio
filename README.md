@@ -14,7 +14,7 @@
 
 ## Feito por:
 
-### Joana Santos
+### Dayvison Cavalcanti
 
 ### Linkedin: https://www.linkedin.com/school/aluracursos/
 
